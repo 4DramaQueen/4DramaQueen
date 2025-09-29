@@ -14,4 +14,4 @@ I might also have a bad grammar since i write fast and english isn't my main lan
 
 Tysm for reading !!1!!1!1! 
 
-![a32803284b1a6d84a5d6e0ae74183daf](https://github.com/user-attachments/assets/8957b809-3cc1-4767-bf20-509851ef79a2)
+![d86ff95b1a3f7899ee82840457372eb5](https://github.com/user-attachments/assets/29ff2d83-8994-4a2d-9db1-dfb05340895a)
