@@ -8,7 +8,6 @@ I'm most of the times afk so c+h is always welcomed !! ( ask when i'm with frien
 
 I sometimes draw stuff and i'll probably soon start uploading my art on my tiktok ! 
 【 If you wanna check out . ➞ @sweet.orangz 】
-Also thinking of opening a strawpagee.. jehejeh 
 
 
 I might also have a bad grammar since i write fast and english isn't my main language ! Sorry if i cause confusion between convos. but i try my best!!!
